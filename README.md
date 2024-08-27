@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **SaaS, Css, React, PHP, etc.**
 
-- 📫 How to reach me **sienekib@gmail.com**
+- 📫 How to reach me **sienekib@gmail.com** | **00 (244) 949 901...** 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
